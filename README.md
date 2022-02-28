@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Alinari
+- 👀 I’m stupido..
+- 🌱 I’m learning UwU..
+- 💞️ I’m try to live..
+- 📫 How to reach me: Discord: Shadow in the Light#7912
